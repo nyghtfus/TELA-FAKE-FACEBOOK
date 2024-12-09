@@ -13,7 +13,7 @@ Procure por:
 ### ✨ **O que oferecemos?**
 - **Telas Fakes_777** 🎨  
 - **Automações_777** 🤖  
-- **Bots_777** ⚙️  
+- **Bots Telegram_777** ⚙️  
 - E muito mais... tudo de **GOOD_777**! 🌟  
 
 ---
